@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **cristiandenicola009@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/cristian-de-nicola-527277209](https://www.linkedin.com/in/cristian-de-nicola-527277209)
+- 📄 Know about my experiences [https://www.linkedin.com/in/cristian-de-nicola-527277209](www.linkedin.com/in/cristian-de-nicola-527277209)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
